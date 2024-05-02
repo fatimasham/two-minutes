@@ -1,8 +1,6 @@
 
 ## Two-Minute Rule App
 
-![image](two-minutes.jpg)
-
 
 **Use the Two-Minute Rule To Stop Procrastinating**
 
